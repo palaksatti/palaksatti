@@ -1,3 +1,5 @@
+![logo](https://github.com/palaksatti/palaksatti/blob/main/banner1.png)
+![logo](https://github.com/palaksatti/palaksatti/blob/main/banner.png)
 ![logo](https://github.com/palaksatti/palaksatti/blob/main/banner2.png)
 <h1 align="center">Hi 👋, I'm Palak Satti</h1>
 <h3 align="center">A passionate iOS developer from Delhi,India</h3>
