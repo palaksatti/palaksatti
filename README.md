@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **palak.satti@gmail.com**
 
-- 📄 Know about my experiences [https://cyan-dulcia-17.tiiny.site/](https://cyan-dulcia-17.tiiny.site/)
+- 📄 Know about my experiences [https://rose-ilse-88.tiiny.site/)
 
 - ⚡ Fun fact **I am enthusiastic about dancing and cafe hopping.**
 
